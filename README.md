@@ -17,6 +17,8 @@
 
 - 📫 How to reach me **rajaramjayaraman.j@gmail.com**
 
+- 📓 Make use of it my medium blog [https://medium.com/@rajaramjayaraman.j](https://medium.com/@rajaramjayaraman.j)
+
 - 📄 Know about my experiences [https://www.linkedin.com/in/rajaramprofile/](https://www.linkedin.com/in/rajaramprofile/)
 
 <h3 align="left">Connect with me:</h3>
